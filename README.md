@@ -27,3 +27,6 @@ In the cosmic crucible, we forged insights. SpaceX's triumphs were woven from bo
 🌎 **Final Orbit**:
 As our starship docks, we leave behind a legacy—a beacon for future explorers. The universe, ever expanding, awaits new odysseys. 🌌🔭
 
+![Designer (58)](https://github.com/rkk96/Capstone-project/assets/166745361/45cae638-b6b1-4672-bcf3-3bb5d3f6096e)
+
+
